@@ -1,0 +1,1 @@
+This is actually my notes as i go through with my GIT lessons is not a serious website
